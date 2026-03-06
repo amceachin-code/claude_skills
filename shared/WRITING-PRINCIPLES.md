@@ -1,0 +1,1 @@
+/Users/andrewmceachin/Desktop/.claude/skills/shared/WRITING-PRINCIPLES.md

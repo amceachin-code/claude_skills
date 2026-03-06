@@ -1,0 +1,1 @@
+/Users/andrewmceachin/Desktop/.claude/skills/writing-style/SKILL.md
